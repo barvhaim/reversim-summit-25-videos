@@ -1,4 +1,4 @@
-# Reversim Summit 2025 - Lectures by Category
+# Reversim Summit 2025
 
 **Full Playlist:** [YouTube Playlist](https://www.youtube.com/playlist?list=PLqXy0aX6TzQqBTdWTLnN--urikR5CFIaz)
 
